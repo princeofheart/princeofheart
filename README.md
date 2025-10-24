@@ -1,1 +1,1 @@
-<img src="https://i.ibb.co/VcpLMngS/image-2025-10-23-214839192.png" alt="image-2025-10-23-214839192" border="0">
+![](https://i.ibb.co/pBWrQg2p/tumblr-7679c47ec9e27c033e83790032e03420-fbaaae16-540.gif)
