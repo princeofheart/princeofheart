@@ -1,1 +1,1 @@
-![](https://i.ibb.co/pBWrQg2p/tumblr-7679c47ec9e27c033e83790032e03420-fbaaae16-540.gif)
+dirk⠀⠀19⠀⠀he/him⠀⠀usually on 18+⠀⠀rarely, safe with friends⠀⠀read [extended rentry](https://rentry.co/heartprince)⠀⠀sign [tetratto](https://tetratto.com/@princeofheart) if you want
