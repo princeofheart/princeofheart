@@ -1,1 +1,1 @@
-dirk⠀⠀19⠀⠀he/him⠀⠀usually on 18+⠀⠀rarely, safe with friends⠀⠀read [extended rentry](https://rentry.co/heartprince) byi⠀⠀sign [tetratto](https://tetratto.com/@princeofheart) if you want
+dirk⠀⠀19⠀⠀he/him⠀⠀usually on 18+⠀⠀rarely, safe with friends⠀⠀read [extended rentry](https://rentry.co/heartprince) byi⠀⠀sign [atabook](https://princeofheart.atabook.org) or [tetratto](https://tetratto.com/@princeofheart) if you want
