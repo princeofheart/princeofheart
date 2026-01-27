@@ -6,4 +6,5 @@ read my <a href="https://rentry.co/heartprince">extended rentry</a> & <a href="h
 </p>
 ⠀⠀
 <p align="center">
+<img src="https://i.ibb.co/35p9MJNT/1769548725633.png" alt="art by docileroamer" width="250"/>
 </p>
