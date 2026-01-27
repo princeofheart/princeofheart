@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=princeofheart&label=follow+your+heart&base=110900&abbreviated=true&color=F6AF81" width="125">
+<img src="https://komarev.com/ghpvc/?username=princeofheart&label=follow+your+heart&base=110900&abbreviated=true&color=F6AF81" width="150">
 </p>
 
 <p align="center">
