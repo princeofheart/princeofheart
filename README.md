@@ -8,8 +8,6 @@
 
 </p>
 
-***
-
 <p align="center">
 D⠀⠀19⠀⠀he/him⠀⠀usually on 18+⠀⠀rarely safe with friends
 </p>
