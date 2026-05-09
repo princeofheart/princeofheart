@@ -9,8 +9,8 @@
 </p>
 
 <p align="center">
-D⠀⠀19⠀⠀he/him + masc terms⠀⠀usually on 18+⠀⠀rarely, safe with friends
+D⠀⠀19⠀⠀he/him⠀⠀usually found on 18+⠀⠀rarely, safe with friends
 </p>
 <p align="center">
-read my <a href="https://rentry.co/heartprince">extended rentry</a> & <a href="https://rentry.co/distrider">ponytown info</a> if you'd like⠀⠀sign my <a href="https://princeofheart.atabook.org">atabook</a> for fun
+read my <a href="https://rentry.co/heartprince">extended rentry</a> & <a href="https://rentry.co/distrider">ponytown info</a> if you want⠀⠀sign my <a href="https://princeofheart.atabook.org">atabook</a>
 </p>
