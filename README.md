@@ -15,5 +15,5 @@
 D⠀⠀19⠀⠀he/him⠀⠀usually found on 18+⠀⠀rarely, safe with friends
 </p>
 <p align="center">
-read my <a href="https://fluffle.cc/smuppet">extended pastebin</a> & <a href="https://fluffle.cc/distrider">ponytown info</a> if you want⠀⠀sign my <a href="https://princeofheart.atabook.org">atabook</a>
+pastebins are fucked right now. info about me is a work in progress.⠀⠀sign my <a href="https://princeofheart.atabook.org">atabook</a>
 </p>
