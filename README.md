@@ -10,5 +10,5 @@
 D⠀⠀19⠀⠀he/him⠀⠀usually found on 18+⠀⠀rarely, safe with friends
 </p>
 <p align="center">
-i have a little surprise coming soon for my info...⠀⠀sign my <a href="https://princeofheart.atabook.org">atabook</a>
+consider reading my <a href="https://listography.com/princeofheart">listography</a> for more information⠀⠀sign my <a href="https://princeofheart.atabook.org">atabook</a>
 </p>
