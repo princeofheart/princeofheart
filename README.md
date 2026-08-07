@@ -14,5 +14,5 @@ D⠀⠀ 19⠀⠀ he/him⠀⠀ usually on 18+ ⠀ rarely, safe with friends
 </p>
 ⠀
 <p align="center">
-<img src="https://i.ibb.co/nsbjSwkr/Screenshot-76.png" width="500">
+<img src="https://i.ibb.co/nsbjSwkr/Screenshot-76.png" width="475">
 </p>
