@@ -1,14 +1,18 @@
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=princeofheart&label=follow+your+heart&base=109400&abbreviated=true&color=a1bc77" width="135">
+<img src="https://komarev.com/ghpvc/?username=princeofheart&label=yume+tsushin&base=109300&abbreviated=true&color=a1aeb2" width="125">
 </p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=ajb8jqt15mn1xo2lqxufvaobh&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=ajb8jqt15mn1xo2lqxufvaobh&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=07a2fe&bar_color_cover=false">
   </a>
 </p>
 <p align="center">
-D⠀⠀19⠀⠀he/him⠀⠀usually found on 18+⠀⠀rarely, safe with friends
+D⠀⠀ 19⠀⠀ he/him⠀⠀ usually on 18+ ⠀ rarely, safe with friends
 </p>
 <p align="center">
-consider reading my <a href="https://listography.com/princeofheart">listography</a> for more information⠀⠀sign my <a href="https://princeofheart.atabook.org">atabook</a>
+<a href="https://listography.com/princeofheart">read my listography for more information</a> ⠀⠀<a href="https://princeofheart.atabook.org">sign my atabook</a>
+</p>
+⠀
+<p align="center">
+<img src="https://i.ibb.co/HDr1zCMX/Screenshot-80.png" width="500">
 </p>
