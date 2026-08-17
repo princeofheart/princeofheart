@@ -7,7 +7,7 @@
   </a>
 </p>
 <p align="center">
-Dirk⠀⠀ 19⠀⠀ he/him⠀⠀ usually on 18+ ⠀ rarely communicative
+dirk⠀⠀ 19⠀⠀ he/him⠀⠀ usually on 18+ ⠀ rarely communicative
 </p>
 <p align="center">
 <a href="https://fluffle.cc/princeofheart">read my pastebin</a> ⠀⠀<a href="https://listography.com/princeofheart">read my listography</a> ⠀⠀<a href="https://princeofheart.atabook.org">sign my atabook</a>
