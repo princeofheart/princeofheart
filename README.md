@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=princeofheart&label=i'm+forgetting+your+face&base=109100&abbreviated=true&color=f34226" width="175">
+<img src="https://komarev.com/ghpvc/?username=princeofheart&label=bound+to+you&base=109100&abbreviated=true&color=f34226" width="125">
 </p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
