@@ -1,9 +1,9 @@
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=princeofheart&label=i'm+forgetting+your+face&base=109100&abbreviated=true&color=dd5f1e" width="175">
+<img src="https://komarev.com/ghpvc/?username=princeofheart&label=i'm+forgetting+your+face&base=109100&abbreviated=true&color=83c08b" width="175">
 </p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=ajb8jqt15mn1xo2lqxufvaobh&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=f69c17&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=ajb8jqt15mn1xo2lqxufvaobh&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=f34226&bar_color_cover=false">
   </a>
 </p>
 <p align="center">
@@ -14,5 +14,5 @@ dirk⠀⠀ 19⠀⠀ he/him⠀⠀ usually on 18+ ⠀ rarely communicative
 </p>
 ⠀
 <p align="center">
-<img src="https://i.ibb.co/93tS3dwS/image-2026-08-16-233259251.png" width="525">
+<img src="https://i.ibb.co/7dSr6YJD/image-2026-08-16-235013068.png" width="525">
 </p>
