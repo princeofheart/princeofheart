@@ -14,5 +14,5 @@ dirk⠀⠀ 19⠀⠀ he/him⠀⠀ usually on 18+ ⠀ rarely communicative
 </p>
 ⠀
 <p align="center">
-<img src="https://i.ibb.co/7dSr6YJD/image-2026-08-16-235013068.png" width="525">
+<img src="https://i.ibb.co/BKzCg99M/04965-2.gif">
 </p>
