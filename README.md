@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=princeofheart&label=bound+to+you&base=108800&abbreviated=true&color=46597d" width="125">
+<img src="https://komarev.com/ghpvc/?username=princeofheart&label=bound+to+you&base=108800&abbreviated=true&color=485c80" width="125">
 </p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -7,12 +7,15 @@
   </a>
 </p>
 <p align="center">
-dirk⠀⠀ 20⠀⠀ he/him⠀⠀ usually on 18+ ⠀ rarely communicative
+$${\color{#e7ddc6}dirk⠀⠀ 20⠀⠀ he/him⠀⠀ usually⠀on⠀18+}$$
 </p>
 <p align="center">
-<a href="https://fluffle.cc/princeofheart">read my pastebin</a> ⠀⠀<a href="https://listography.com/princeofheart">read my listography</a> ⠀⠀<a href="https://princeofheart.atabook.org">sign my atabook</a>
+<a href="https://fluffle.cc/princeofheart"><img src="https://i.ibb.co/5XhCDtkH/Untitled1037-20260913163129.png" alt="my fluffle" width="90"></a>⠀⠀⠀<a href="https://listography.com/princeofheart"><img src="https://i.ibb.co/hJTy2JCS/Untitled1039-20260913163349.png" alt="my listography" width="150"></a>⠀⠀ <a href="https://princeofheart.atabook.org"><img src="https://i.ibb.co/Cp3fJ5FF/Untitled1038-20260913163311.png" alt="my atabook" width="110"></a>
 </p>
-⠀
 <p align="center">
-<img src="https://i.ibb.co/BKzCg99M/04965-2.gif">
+$${\color{#ba855f}i⠀can⠀sometimes⠀be⠀found⠀on⠀safe}$$
+$${\color{#485c80}read⠀my⠀links⠀for⠀more⠀information}$$
+</p>
+<p align="center">
+<img src="https://i.ibb.co/679KZGKS/Untitled1040-20260913170336.png" width="300">
 </p>
