@@ -17,5 +17,5 @@ $${\color{#ba855f}i⠀can⠀sometimes⠀be⠀found⠀on⠀safe}$$
 $${\color{#485c80}read⠀my⠀links⠀for⠀more⠀information}$$
 </p>
 <p align="center">
-<img src="https://i.ibb.co/679KZGKS/Untitled1040-20260913170336.png" width="300">
+<img src="https://i.ibb.co/Xx0hyJ4B/Untitled1040-20260913171150.png" width="300">
 </p>
