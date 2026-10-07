@@ -10,7 +10,7 @@
 $${\color{#e7ddc6}dirk⠀⠀ 20⠀⠀ he/him⠀⠀ usually⠀on⠀18+}$$
 </p>
 <p align="center">
-<a href="https://fluffle.cc/princeofheart"><img src="https://i.ibb.co/5XhCDtkH/Untitled1037-20260913163129.png" alt="my fluffle" width="90"></a>⠀⠀⠀<a href="https://listography.com/princeofheart"><img src="https://i.ibb.co/hJTy2JCS/Untitled1039-20260913163349.png" alt="my listography" width="150"></a>⠀⠀ <a href="https://princeofheart.atabook.org"><img src="https://i.ibb.co/Cp3fJ5FF/Untitled1038-20260913163311.png" alt="my atabook" width="110"></a>
+<a href="https://fluffle.cc/princeofheart"><img src="https://i.ibb.co/5XhCDtkH/Untitled1037-20260913163129.png" alt="my fluffle" width="110"></a>⠀⠀ <a href="https://princeofheart.atabook.org"><img src="https://i.ibb.co/Cp3fJ5FF/Untitled1038-20260913163311.png" alt="my atabook" width="133"></a>
 </p>
 <p align="center">
 $${\color{#ba855f}i⠀can⠀sometimes⠀be⠀found⠀on⠀safe}$$
