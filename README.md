@@ -10,12 +10,12 @@
 $${\color{#e7ddc6}dirk⠀⠀ 20⠀⠀ he/him⠀⠀ usually⠀on⠀18+}$$
 </p>
 <p align="center">
-<a href="https://fluffle.cc/princeofheart"><img src="https://i.ibb.co/5XhCDtkH/Untitled1037-20260913163129.png" alt="my fluffle" width="110"></a>⠀⠀ <a href="https://princeofheart.atabook.org"><img src="https://i.ibb.co/Cp3fJ5FF/Untitled1038-20260913163311.png" alt="my atabook" width="133"></a>
+<a href="https://fluffle.cc/princeofheart"><img src="https://files.catbox.moe/w6w78y.png" alt="my fluffle" width="110"></a>⠀⠀ <a href="https://princeofheart.atabook.org"><img src="https://files.catbox.moe/6rtegx.png" alt="my atabook" width="133"></a>
 </p>
 <p align="center">
 $${\color{#ba855f}i⠀can⠀sometimes⠀be⠀found⠀on⠀safe}$$
 $${\color{#485c80}read⠀my⠀links⠀for⠀more⠀information}$$
 </p>
 <p align="center">
-<img src="https://i.ibb.co/Xx0hyJ4B/Untitled1040-20260913171150.png" width="300">
+<img src="https://files.catbox.moe/grtpoe.png" width="300">
 </p>
