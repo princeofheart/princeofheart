@@ -1,7 +1,4 @@
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=princeofheart&label=heartbound&base=108500&abbreviated=true&color=485c80" width="100">
-</p>
-<p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=ajb8jqt15mn1xo2lqxufvaobh&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ba855f&bar_color_cover=false">
   </a>
