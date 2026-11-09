@@ -15,7 +15,7 @@ $${\color{#dcaf63}read⠀my⠀links⠀for⠀more⠀information}$$
 </p>
 <div align="center">
 <details>
-<summary>$${\color{#c4ffa8}♡}$$</summary>
+<summary>$${\color{#4dff8c}♡}$$</summary>
 <br>
 <sub><a href="https://github.com/vanyamisa">@vanyamisa</a> <a href="https://github.com/cryingmoonn">@cryingmoonn</a> <a href="https://github.com/saiharas-shuichi">@saiharas-shuichi</a></sub>
 <br>
