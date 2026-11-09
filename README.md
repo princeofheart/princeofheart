@@ -25,9 +25,5 @@ $${\color{#dcaf63}read⠀my⠀links⠀for⠀more⠀information}$$
 <br>
 <br>
 <sub><a href="https://github.com/clawkind">@clawkind</a> <a href="https://github.com/gnostalgic">@gnostalgic</a> <a href="https://github.com/timeturntables">@timeturntables</a></sub>
-<br>
-<br>
-<br>
-$${\color{#c4ffa8}profile⠀picture⠀is⠀by⠀yours⠀truly}$$
 </details>
 </div>
