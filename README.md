@@ -28,6 +28,6 @@ $${\color{#dcaf63}read⠀my⠀links⠀for⠀more⠀information}$$
 <br>
 <br>
 <br>
-$${\color{#c4ffa8}profile⠀picture⠀art⠀is⠀by⠀yours⠀truly}$$
+$${\color{#c4ffa8}profile⠀picture⠀is⠀by⠀yours⠀truly}$$
 </details>
 </div>
