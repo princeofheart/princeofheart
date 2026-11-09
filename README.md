@@ -11,7 +11,7 @@ $${\color{#c4ffa8}dirk⠀⠀20⠀⠀he/him⠀⠀usually⠀on⠀18+}$$
 </p>
 <p align="center">
 $${\color{#dcaf63}i⠀can⠀sometimes⠀be⠀found⠀on⠀safe}$$
-$${\color{#b1a254}read⠀my⠀links⠀for⠀more⠀information}$$
+$${\color{#dcaf63}read⠀my⠀links⠀for⠀more⠀information}$$
 </p>
 <div align="center">
 <details>
