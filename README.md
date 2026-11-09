@@ -11,19 +11,19 @@ $${\color{#dcdbcc}dirk⠀⠀ 20⠀⠀ he/him⠀⠀ usually⠀on⠀18+}$$
 </p>
 <p align="center">
 $${\color{#395c71}i⠀can⠀sometimes⠀be⠀found⠀on⠀safe}$$
-$${\color{#2f3e4e}read⠀my⠀links⠀for⠀more⠀information}$$
+$${\color{#395c71}read⠀my⠀links⠀for⠀more⠀information}$$
 </p>
 <div align="center">
 <details>
 <summary>$${\color{#dcdbcc}♡}$$</summary>
 <br>
-<small><a href="https://github.com/vanyamisa">@vanyamisa</a> <a href="https://github.com/cryingmoonn">@cryingmoonn</a> <a href="https://github.com/saiharas-shuichi">@saiharas-shuichi</a></small>
+<sub><a href="https://github.com/vanyamisa">@vanyamisa</a> <a href="https://github.com/cryingmoonn">@cryingmoonn</a> <a href="https://github.com/saiharas-shuichi">@saiharas-shuichi</a></sub>
 <br>
-<small><a href="https://github.com/lazulea">@lazulea</a> <a href="https://github.com/stxrryn1ght">@stxrryn1ght</a> <a href="https://github.com/kaekat">@kaekat</a> <a href="https://github.com/roroskaa">@roroskaa</a></small>
+<sub><a href="https://github.com/lazulea">@lazulea</a> <a href="https://github.com/stxrryn1ght">@stxrryn1ght</a> <a href="https://github.com/kaekat">@kaekat</a> <a href="https://github.com/roroskaa">@roroskaa</a></sub>
 <br>
-<small><a href="https://github.com/HannieJiQuokka">@hanniejiquokka</a> <a href="https://github.com/internetxangel">@internetxangel</a></small>
+<sub><a href="https://github.com/HannieJiQuokka">@hanniejiquokka</a> <a href="https://github.com/internetxangel">@internetxangel</a></sub>
 <br>
 <br>
-<small><a href="https://github.com/clawkind">@clawkind</a> <a href="https://github.com/gnostalgic">@gnostalgic</a> <a href="https://github.com/timeturntables">@timeturntables</a></small>
+<sub><a href="https://github.com/clawkind">@clawkind</a> <a href="https://github.com/gnostalgic">@gnostalgic</a> <a href="https://github.com/timeturntables">@timeturntables</a></sub>
 </details>
 </div>
