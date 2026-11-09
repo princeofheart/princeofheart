@@ -4,7 +4,7 @@
   </a>
 </p>
 <p align="center">
-$${\color{#4dff8c}dirk⠀⠀20⠀⠀he/him⠀⠀usually⠀on⠀18+}$$
+$${\color{#c4ffa8}dirk⠀⠀20⠀⠀he/him⠀⠀usually⠀on⠀18+}$$
 </p>
 <p align="center">
 <a href="https://fluffle.cc/princeofheart"><img src="./fluffle.png" alt="my fluffle" width="110"></a>⠀⠀ <a href="https://princeofheart.atabook.org"><img src="./atabook.png" alt="my atabook" width="133"></a>
@@ -28,6 +28,6 @@ $${\color{#dcaf63}read⠀my⠀links⠀for⠀more⠀information}$$
 <br>
 <br>
 <br>
-$${\color{#4dff8c}profile⠀picture⠀art⠀is⠀by⠀yours⠀truly}$$
+$${\color{#c4ffa8}profile⠀picture⠀art⠀is⠀by⠀yours⠀truly}$$
 </details>
 </div>
