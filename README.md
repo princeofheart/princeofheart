@@ -17,13 +17,13 @@ $${\color{#2f3e4e}read⠀my⠀links⠀for⠀more⠀information}$$
 <details>
 <summary>$${\color{#dcdbcc}♡}$$</summary>
 <br>
-<a href="https://github.com/vanyamisa">@vanyamisa</a> <a href="https://github.com/cryingmoonn">@cryingmoonn</a> <a href="https://github.com/saiharas-shuichi">@saiharas-shuichi</a>
+<small><a href="https://github.com/vanyamisa">@vanyamisa</a> <a href="https://github.com/cryingmoonn">@cryingmoonn</a> <a href="https://github.com/saiharas-shuichi">@saiharas-shuichi</a></small>
 <br>
-<a href="https://github.com/lazulea">@lazulea</a> <a href="https://github.com/stxrryn1ght">@stxrryn1ght</a> <a href="https://github.com/kaekat">@kaekat</a> <a href="https://github.com/roroskaa">@roroskaa</a>
+<small><a href="https://github.com/lazulea">@lazulea</a> <a href="https://github.com/stxrryn1ght">@stxrryn1ght</a> <a href="https://github.com/kaekat">@kaekat</a> <a href="https://github.com/roroskaa">@roroskaa</a></small>
 <br>
-<a href="https://github.com/HannieJiQuokka">@hanniejiquokka</a> <a href="https://github.com/internetxangel">@internetxangel</a>
+<small><a href="https://github.com/HannieJiQuokka">@hanniejiquokka</a> <a href="https://github.com/internetxangel">@internetxangel</a></small>
 <br>
 <br>
-<a href="https://github.com/clawkind">@clawkind</a> <a href="https://github.com/gnostalgic">@gnostalgic</a> <a href="https://github.com/timeturntables">@timeturntables</a>
+<small><a href="https://github.com/clawkind">@clawkind</a> <a href="https://github.com/gnostalgic">@gnostalgic</a> <a href="https://github.com/timeturntables">@timeturntables</a></small>
 </details>
 </div>
